@@ -11,3 +11,4 @@ He trabajado especialmente con empresas de servicios como reformas e inmobiliari
 A diferencia de los enfoques tradicionales basados en ejecutar campañas o acciones puntuales, mi trabajo se centra en analizar el negocio, detectar los puntos de mejora y construir una base sólida que permita escalar de forma sostenible.
 
 El objetivo final es claro: dejar de depender de acciones aisladas y convertir el marketing en un motor constante de generación de clientes.
+Héctor Soriano
